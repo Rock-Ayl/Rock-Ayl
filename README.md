@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-Contact me：[email](rock-ayl@foxmail.com)
+Contact me：[rock-ayl@foxmail.com](rock-ayl@foxmail.com)
 
 📊 **Good at**
 
